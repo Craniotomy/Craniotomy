@@ -12,3 +12,7 @@ Latvian | Queer + Trans | Psychology major
 - Roblox: Galaxia_Flow
   
 > Feel free to follow/add me if you're over 16 :-)
+
+Art creds: 
+`lilPong2`
+`NT_26`
