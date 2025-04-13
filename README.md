@@ -1,17 +1,14 @@
-## Hi there 👋
+![](https://komarev.com/ghpvc/?username=CuteSexyBoy&color=red)
 
-<!--
-**CuteSexyBoy/CuteSexyBoy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![](https://pbs.twimg.com/media/FrV7lZPaUAMzN63?format=jpg&name=large) 
+### 18 ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/orange/IMG_5090.gif) Any pronouns
 
-Here are some ideas to get you started:
+Latvian | Queer + Trans | Psychology major
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
-Don't try to befriend me if ur under 16 please and thanks!!! I only go on PG to join games ngl .
+**Usernames**
+- Social Media: lovynlace
+- IDV: YuriJesus
+- Animal Jam: dogparka
+- Roblox: Galaxia_Flow
+  
+> Feel free to follow/add me if you're over 16 :-)
