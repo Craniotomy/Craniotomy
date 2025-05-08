@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=CuteSexyBoy&color=blue)
+![](https://komarev.com/ghpvc/?username=CuteSexyBoy&color=white)
 
 ![](https://64.media.tumblr.com/ad9e798a638c82fc330eaf593158422f/55b9283412de05c0-52/s1280x1920/8f059362f17fc6f13b9eb896f922e7fb7a266072.gifv)
 ### 18 ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/IMG_4330.gif) Latvian ![](https://file.garden/Zj8MKPoh-G9Y8EJE/pixels/blue/7aee2676.gif) Psych major
