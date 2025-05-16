@@ -1,5 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=CuteSexyBoy&color=orange)
 
+don't try to act *holier than thou* with me, i will have skins of things you may not like and that doesn't mean i support it #blessup
+ 
 ![](https://files.catbox.moe/t9wt89.png)
  
-hi if u want to come at me for having a skin for a "problematic fandom" please know I DONT CARE I DONT CARE I DONT CARE its literally just an outfit, ur fav media is probably somewhat problematic too, stop trying to act holier than thou when we are playing a pony game literally made by bad ppl... anyway  **representation =/= supporting**
