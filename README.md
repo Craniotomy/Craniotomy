@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=craniotomy&color=white)
+![](https://komarev.com/ghpvc/?username=craniotomy&color=black)
  
 unkind messages on atabook will be transformed into kind ones, ur not safe from my editorial power
