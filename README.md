@@ -1,6 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=CuteSexyBoy&color=orange)
  
-message me if u want, i do bite though
- 
-![](https://files.catbox.moe/t9wt89.png)
- 
+unkind messages on atabook will be transformed into kind ones, ur not safe from my editorial power
