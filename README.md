@@ -2,7 +2,7 @@
 
 ![](https://i.pinimg.com/originals/ad/86/1e/ad861e25cd5e28aec6b0896b43d644b2.gif)
 
-BYI: u can block me if u want regardless, but please do not apply your fandom dnis to me, i enjoy all of my media critically and prefer to not interact with the fandoms thx. all my interests r listed on my spacehey profile T_T
+BYI: u can block me if u want regardless, **but please do not apply your fandom dnis to me**, i enjoy all of my media critically and prefer to not interact with the fandoms thx. all my interests r listed on my spacehey profile T_T
 
 also hetalia is my special interest yayaya
 
